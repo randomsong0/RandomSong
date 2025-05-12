@@ -70,6 +70,7 @@ Ready to break your listening habits and discover a world of music you never kne
 - [archivists](https://www2.archivists.org/statements/saa-council-statement-on-black-lives-and-archives#comment-7994)
 - [rockwool](https://as-cn-video.rockwool.com/7-strengths-testing-thermal)
 - [oag](https://webinars.oag.com/oag-webinar-china-outbound-are-we-4)
+- [destiny-matrix](https://destiny-matrix.cc/)
 
 ---
 
