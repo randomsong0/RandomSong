@@ -61,6 +61,7 @@ Ready to break your listening habits and discover a world of music you never kne
 - [kcd2](https://kcd2.org/)
 - [pet-to-human](https://pet-to-human.com/)
 - [nailgenie](https://nailgenie.org/)
+- [producthunt](https://www.producthunt.com/products/randomsong/)
 - [saashub](https://www.saashub.com/randomsong-alternatives)
 - [alternativeto](https://alternativeto.net/software/randsong/about/)
 - [wix](https://nl.wix.com/blog/post/15-toffe-wix-website-voorbeelden-die-je-inspireren)
@@ -71,6 +72,8 @@ Ready to break your listening habits and discover a world of music you never kne
 - [rockwool](https://as-cn-video.rockwool.com/7-strengths-testing-thermal)
 - [oag](https://webinars.oag.com/oag-webinar-china-outbound-are-we-4)
 - [destiny-matrix](https://destiny-matrix.cc/)
+- [substack](https://pjvogt.substack.com/p/how-am-i-supposed-to-find-new-music/comments/)
+
 
 ---
 
