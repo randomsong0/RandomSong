@@ -72,7 +72,9 @@ Ready to break your listening habits and discover a world of music you never kne
 - [oag](https://webinars.oag.com/oag-webinar-china-outbound-are-we-4)
 - [destiny-matrix](https://destiny-matrix.cc/)
 - [substack](https://pjvogt.substack.com/p/how-am-i-supposed-to-find-new-music/comments/)
-
+- [videomarketingplatform](https://1dsq8r.videomarketingplatform.co/masterclass-e-mail-copywriting-1)
+- [substack](https://thelandofrandom.substack.com/p/medieval-jams-lofone-dreams-and-rube)
+- [hypebot](https://www.hypebot.com/hypebot/2025/05/viral-isnt-valuable-why-artists-struggle-with-algorithms.html?unapproved=61925&moderation-hash=cc36286dc305cf1c17126a546a41b1f8#comment-61925)
 
 ---
 
