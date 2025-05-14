@@ -56,7 +56,7 @@ Ready to break your listening habits and discover a world of music you never kne
 ---
 
 ## Testimonials
-
+- [fmhy](https://fmhy.net/audiopiracyguide)
 - [ghiblify](https://ghiblify.run/)
 - [kcd2](https://kcd2.org/)
 - [pet-to-human](https://pet-to-human.com/)
@@ -75,6 +75,7 @@ Ready to break your listening habits and discover a world of music you never kne
 - [videomarketingplatform](https://1dsq8r.videomarketingplatform.co/masterclass-e-mail-copywriting-1)
 - [substack](https://thelandofrandom.substack.com/p/medieval-jams-lofone-dreams-and-rube)
 - [hypebot](https://www.hypebot.com/hypebot/2025/05/viral-isnt-valuable-why-artists-struggle-with-algorithms.html?unapproved=61925&moderation-hash=cc36286dc305cf1c17126a546a41b1f8#comment-61925)
+
 
 ---
 
